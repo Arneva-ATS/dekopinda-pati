@@ -1,1 +1,1 @@
-# dekopinda-pati
+# dekopinda-karanganyar
